@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **hromek.timur@gmail.com**
 
-- ⚡ Fun fact **I don't have a life ;)**
+- ⚡ Programmer friend https://github.com/Haoroux**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
